@@ -1,4 +1,4 @@
-# Hi 👋, I'm InVekYT
+# Hi 👋, I'm Freetz
 
 ### 🚧 Current projects
 
